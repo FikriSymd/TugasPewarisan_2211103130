@@ -1,2 +1,2 @@
-# TugasPewarisan_2211103130
-Tugas Pewarisan PBO
+# FIKRI AHMAD SYAMMADA
+# 2211103130
